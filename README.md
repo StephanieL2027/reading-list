@@ -1,1 +1,1 @@
-# Updated 2026 reading list
+# Updated 2027 reading list
